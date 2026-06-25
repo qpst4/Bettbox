@@ -14,11 +14,10 @@ Bettbox意为: Better Experience, Out of the box，卓越体验，亦开箱即�
 ---
 
 ##  推荐服务链接
+### 高端机场： [E-IX](https://cloud.e-ix.com/#/register?code=lfMJjukm)   〢   [SS-ID](https://ss-id.com/#/register?code=BrWsJkkl)    〢   [FATCAT](https://inv03.fcweba.cc/register?aff=tmb14itu)
+### 高性价比： [良心云](https://xn--9kqz23b19z.com/#/register?code=VTnrQYAj)   〢   [一分机场](https://xn--4gqx1hgtfdmt.com/#/register?code=AuCiXprV)    〢   [赔钱机场](https://xn--mes358aby2apfg.com/register?code=z7TUZLmM&cover=sfw)
 
-### 高性价比机场： [一分机场](https://xn--4gqx1hgtfdmt.com/#/register?code=AuCiXprV)   -   [良心云官网](https://xn--9kqz23b19z.com/#/register?code=VTnrQYAj) 
-简评: 2元/100G/月起售，大流量套餐：6元/1000GB流量性价比较高，流媒体与AI服务解锁尚可，相对跑路风险较低
-
-**注意** : 以上机场&服务与Bettbox项目并无直接关联，经群友反馈口碑相对尚可，仅日常推荐且后期可能会有变化
+**简评** : ❚ 高端机场线路稳定性更好，但价格稍高 ❚❚ 高性价比机场，6元/1000GB流量更充足，根据自己需求选择即可 ❚❚❚ 以上谨作日常推荐，机场服务与Bettbox软件无其他关联，请自行判定
 
 ---
 
